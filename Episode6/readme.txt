@@ -1,0 +1,1 @@
+Episode 6 was vector theory only.
